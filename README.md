@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @B17IVI3
+- 👀 I’m interested in learn
+- 🌱 I’m currently learning python, php, k..i rsrsrs
+- 💞️ I’m looking to collaborate on open projects
+- 📫 How to reach me B17IVI3@protonmail.com
